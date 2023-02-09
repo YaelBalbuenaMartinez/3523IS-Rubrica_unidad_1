@@ -1,1 +1,4 @@
 # PC-S-Proyecto-Evalucaion-1
+Balbuena_Martínez_Yael_1321124280
+Garcia_Alvarado_Yareli_Irais_1321124275
+Gamez_Ledo_Irving_Jonathan_1321124302
